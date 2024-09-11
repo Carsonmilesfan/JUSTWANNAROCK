@@ -1,4 +1,4 @@
-##justwannarock 
+##JUSTWANNAROCK 
 
 Ah, ah, ah, ah, ah, ah
 I just wanna rock
